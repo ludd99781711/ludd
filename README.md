@@ -4,4 +4,5 @@ BEM VINDOS♡
 sou a aluna = ludmila de oliveira 
 
 serie 1 ano B 
-![] (https://media1.tenor.com/m/B77LwVQWXIQAAAAC/milk-and-mocha-ahahah.gif)
+
+![] (https://media.tenor.com/Ex1pkci_-v8AAAAi/white-cute-cat-hearts.gif)
